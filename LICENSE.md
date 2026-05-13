@@ -1,4 +1,4 @@
-# 
+# custom NFT Flip Bot for nft trading bot | real-time-monitoring & flip-strategies is the best nft trading bot, featuring real-time-monitoring and flip-strategies. Fast, smart, and
 
 
 
